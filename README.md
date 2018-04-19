@@ -96,6 +96,10 @@ Smørrebrød is typically served at lunch, and most smørrebrød restaurants clo
 * [Cock's and Cows](https://cocksandcows.dk/)
 
 
+### Hot dogs
+If you haven't had a hot dog from one of our traditional [hot dog stands](https://www.60by80.com/images/stories/copenhagen/restaurants/perch/resources/copenhagenrespoelsevogn01.jpg), then it's a must! They are known world wide as some of the best, if not [THE best](http://thecopenhagentales.com/2015/02/28/typical-danish-hot-dogs/) ;) Forget about gourmet or organic hot dogs, just go for the good old fashioned kind, they truly are amazing.
+
+
 ### Ramen
 * [Slurp Ramen Joint](http://slurpramen.dk/)
 
@@ -109,6 +113,10 @@ Smørrebrød is typically served at lunch, and most smørrebrød restaurants clo
 * [Amass](http://amassrestaurant.com/)
 * [Höst](https://cofoco.dk/en/restaurants/hoest/)
 * [Madklubben](http://madklubben.dk/en/)
+* [Manfreds](http://manfreds.dk/en/)
+* [Barr](https://restaurantbarr.com/en/home/)
+* [Geist](http://restaurantgeist.dk/en/)
+
 
 
 
