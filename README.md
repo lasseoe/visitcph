@@ -24,7 +24,7 @@ Denmark has some of the best cocktail bars in the world.
 * [Brønnum](https://bronnumcph.dk/)
 
 
-I've deliberately left out Sky Bar at the AC Hotel Bella Sky, while the location and view is fantastic, the cocktails are not.
+I've deliberately left out Sky Bar at the AC Hotel Bella Sky, while the location and view is fantastic, the cocktails are not. Note: Sky Bar appears to be closed until June.
 
 
 
@@ -55,7 +55,7 @@ I've deliberately left out Sky Bar at the AC Hotel Bella Sky, while the location
 
 ### Smørrebrød
 
-[Danish Smørrebrød](https://www.seriouseats.com/2014/12/smorrebrod-introduction-danish-sandwich.html) is a traditional dish that is like an open faced sandwich, but on rye bread, and features different combinations of seafood, meats, cheese and vegetables. Dane's enjoy beer and schnaps or [aquavit](https://en.wikipedia.org/wiki/Akvavit) with their smørrebrød.
+[Danish Smørrebrød](https://www.seriouseats.com/2014/12/smorrebrod-introduction-danish-sandwich.html) is a traditional dish that is like an open faced sandwich, but on rye bread, and features different combinations of seafood, meats, cheese and vegetables. Danes enjoy beer and schnaps or [aquavit](https://en.wikipedia.org/wiki/Akvavit) with their smørrebrød.
 
 Smørrebrød is typically served at lunch, and most smørrebrød restaurants close late afternoon. Smørrebrød restaurants are popular, make sure you call ahead and reserve a table.
 
